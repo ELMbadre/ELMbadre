@@ -5,5 +5,5 @@ My name is **EL MOUTARIF Badreddine**. I spent **three years** **studying mathem
 
 In this era of rapid artificial intelligence development, my curiosity has grown, leading me to enroll in one of the most fascinating courses worldwide: *AICE*.
 
-- 📫 How to reach me: [twittwr](https://twitter.com/BadrELMoutarif) & [linkedin](https://www.linkedin.com/in/badreddine-el-moutarif-699761286)
+- 📫 How to reach me: [twittwer](https://twitter.com/BadrELMoutarif) & [linkedin](https://www.linkedin.com/in/badreddine-el-moutarif-699761286)
 
